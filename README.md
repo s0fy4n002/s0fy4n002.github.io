@@ -1,1 +1,0 @@
-# s0fy4n002.github.io
